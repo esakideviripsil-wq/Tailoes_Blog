@@ -245,4 +245,4 @@ With growing demand for personalized menswear, embroidery continues to be one of
 
 Tailoes delivers modern embroidered fashion that blends tradition with contemporary styling for today’s wardrobe needs.
 
-![Premium embroidered shirt](images/embroidered-shirt-1.jpg)
+![Premium embroidered shirt](embroidered-shirt-1.jpg)
