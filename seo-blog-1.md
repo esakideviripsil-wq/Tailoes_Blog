@@ -1,5 +1,7 @@
 **1.# Premium Embroidered Shirts for Men in India | Designer Embroidery Fashion by Tailoes****
 
+![Premium embroidered shirt](embroidered-shirt-1.jpg)
+
 ## Introduction
 
 Premium embroidered shirts for men are becoming one of the strongest fashion trends in India because they combine craftsmanship, statement styling, and modern tailoring. Unlike basic printed shirts, embroidered shirts add texture, depth, and luxury appeal while remaining wearable for festive events, parties, vacations, and smart casual dressing.
@@ -155,5 +157,5 @@ With growing demand for personalized menswear, embroidery continues to be one of
 
 Tailoes delivers modern embroidered fashion that blends tradition with contemporary styling for today’s wardrobe needs.
 
-![Premium embroidered shirt](embroidered-shirt-1.jpg)
+
 
