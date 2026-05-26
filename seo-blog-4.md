@@ -2,7 +2,7 @@
 
 
 # Kids Consultation & Stitching Service in India | Doorstep Custom Tailoring for Boys & Girls
-![Kids consultation and stitching service for boys and girls](kids-wear.webp)
+![image](kids-wear.webp)
 
 ## Introduction
 
