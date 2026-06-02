@@ -1,4 +1,5 @@
 # Custom Pet Outfit Consultation India: Complete Guide to Pet Fashion Styling in 2026
+![Pets Image](pets.webp)
 
 **Written by Tailoes Pets Style Team**  
 *Updated June 2026*
